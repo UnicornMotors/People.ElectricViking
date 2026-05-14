@@ -1,0 +1,1 @@
+- [BYD Could Take Over Volkswagen’s German Factory](https://youtu.be/33GGo9UxJ-g)
